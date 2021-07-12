@@ -14,21 +14,25 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
- UM POUCO SOBRE MIM:
+ UM POUCO SOBRE MIM☺️
 
--Olá!eu me chamo Théo Prunzel
+-Eu me chamo Théo Prunzel
 -Tenho 15 anos
 -Sou de São Pedro do Sul/RS
+-Sou gremista
 -Estudo no CTISM/UFSM
 
- HOBBIES:
+ HOBBIES🤓 
 -Ciclismo(MTB)
 -Jogar no celular
 -jogar futebol,vôlei,basquete,etc
 -jogar carta
 
- REDES SOCIAIS:
+ REDES SOCIAIS📱
 intagram:@theoprunzel
 Twitter:@prunzeltheo
 Facebook:Théo Prunzel
 Strava:Théo Prunzel
+
+EMAIL PARA CONTATO✉️
+theoprunzel@gmail.com
