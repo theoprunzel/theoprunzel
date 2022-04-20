@@ -1,38 +1,24 @@
-﻿### Hi there 👋
+﻿ UM POUCO SOBRE MIM☺️
 
-<!--
-**theoprunzel/theoprunzel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
- UM POUCO SOBRE MIM☺️
-
--Eu me chamo Théo Prunzel
--Tenho 15 anos
--Sou de São Pedro do Sul/RS
+-Eu me chamo Théo Prunzel Schalemberguer
+-Tenho 16 anos
+-Sou natural São Pedro do Sul/RS
 -Sou gremista
 -Estudo no CTISM/UFSM
+-Curso informática para internet
 
  HOBBIES🤓 
 -Ciclismo(MTB)
 -Jogar no celular
 -jogar futebol,vôlei,basquete,etc
--jogar carta
+-jogar truco
+-jogar no computador
 
  REDES SOCIAIS📱
-intagram:@theoprunzel
-Twitter:@prunzeltheo
-Facebook:Théo Prunzel
-Strava:Théo Prunzel
+-Intagram:@theoprunzel
+-Twitter:@prunzeltheo
+-Facebook:Théo Prunzel
+-Strava:Théo Prunzel
 
-EMAIL PARA CONTATO✉️
+ EMAIL PARA CONTATO✉️
 theoprunzel@gmail.com
